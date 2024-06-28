@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @niicoleap
 - 👀 I’m interested in pinture
 - 🌱 I’m currently learning english
-- 💞️ I’m looking to collaborate on 
-- 📫 How to reach me 
+- 💞️ I’m looking to collaborate on school
+- 📫 How to reach me in instagram
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: i have seven dogs
 
